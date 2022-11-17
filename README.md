@@ -24,6 +24,7 @@
       Jueves 16 de Noviembre de 2022
       
  **LINK DEL VIDEO EXPLICATIVO DEL PROYECTO:**
+ https://www.youtube.com/watch?v=IF-oi-T9-K0
  
      
       
