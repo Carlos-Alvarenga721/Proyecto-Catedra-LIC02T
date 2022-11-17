@@ -21,7 +21,7 @@
 
  **4) FECHA DE ENTREGA:**
  
-      MIERCOLES 16 de Noviembre de 2022
+      Jueves 16 de Noviembre de 2022
       
  **LINK DEL VIDEO EXPLICATIVO DEL PROYECTO:**
  
